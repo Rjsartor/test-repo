@@ -1,1 +1,1 @@
-Hello my name is Taylor. 
+Hello our names are Taylor and Randy. 
